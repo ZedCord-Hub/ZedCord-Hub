@@ -1,5 +1,5 @@
 - 👋 Heyoo! I am @Tenjiku-kun or Piyush , I am just a random High Schooler . . .
-- 👀 I’m interested in watching Animes, reading Mangas and being lazy . . .
+- 👀 An Outgoing Introvert, Obsessed with Anime & Manga, preety much laid back . . . .
 - 🌱 I’m currently doing nothing lol . . .
 
 <!---
