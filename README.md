@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tenjiku or Piyush , I am just a random High Schooler . . .
+- 👋 Hi, I’m @Tenjiku-kun or Piyush , I am just a random High Schooler . . .
 - 👀 I’m interested in watching Animes, reading Mangas and being lazy . . .
 - 🌱 I’m currently doing nothing lol . . .
 
