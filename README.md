@@ -1,4 +1,4 @@
-- 👋 Heyoo! I am @Tenjiku-kun or Piyush , I am just a random High Schooler . . .
+- 👋 Hi! I am @Tenjiku-kun or Piyush , I am just a random High Schooler . . .
 - 👀 An Outgoing Introvert who is pretty much laid back . . . .
 - 🌱 I’m currently doing nothing lol . . .
 
