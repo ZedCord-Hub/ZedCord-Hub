@@ -1,6 +1,6 @@
-- 👋 Hi! I am @piyush6374 or Piyush , I am just a random High Schooler . . .
+- 👋 Hi! I am @DevYushi or Pixi/Pixel/Yushi, I am just a random High Schooler . . . .
 - 👀 An Outgoing Introvert who is pretty much laid back . . . .
-- 🌱 I’m currently doing nothing lol . . .
+- 🌱 I’m currently learning Web Development . . . .
 
 <!---
 Anonymous6374/Anonymous6374 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
