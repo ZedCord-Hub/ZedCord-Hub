@@ -1,4 +1,4 @@
-- 👋 Hi! I am @DevYushi or Pixi/Pixel/Yushi, I am just a random High Schooler . . . .
+- 👋 Hi! I am @DevixelHub Devixel, I am just a random High Schooler . . . .
 - 👀 An Outgoing Introvert who is pretty much laid back . . . .
 - 🌱 I’m currently learning Web Development . . . .
 
